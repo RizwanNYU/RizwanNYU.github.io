@@ -1,1 +1,1 @@
-# Rizwanfrontdev.github.io
+# RizwanNYU.github.io
